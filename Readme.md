@@ -1,4 +1,4 @@
-# Krisha, Caitanya, Das Avatar and Other art
+# Krishna, Caitanya, Das Avatar and Other art
 
 This repository contains many Krishna, Caitanya, Das Avatara and other significant Hindu story pictures.
 
